@@ -113,3 +113,11 @@ I completed the workplace etiquette training modules, took notes, and participat
 I gained confidence in presenting myself professionally. I now understand appropriate behaviour in a workplace, how to communicate respectfully, and how to maintain professionalism in different scenarios.
 
 
+**Conclusion**
+
+Creating this digital portfolio allowed me to reflect on my personal and professional development throughout the Work Readiness Training. By collecting evidence and applying the STAR reflection technique, I was able to clearly identify how my skills have grown in key areas such as business communication, interview readiness, networking, and workplace etiquette.
+
+This portfolio not only showcases the work I completed, but also demonstrates how each experience contributed to my confidence and employability. Through the process, I gained a better understanding of my strengths, improved my communication abilities, and developed essential career skills that will support me as I enter the professional world.
+
+Overall, this portfolio represents my journey of growth, learning, and preparation for the workplace. I am now more confident, more professional, and better equipped for future opportunities.
+
